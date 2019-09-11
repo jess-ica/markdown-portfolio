@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+My favourite things
+- EDEN
+- vertigo (the album)
+- i think you think too much of me (the ep)
+- end credits (the ep)
+- 909
+  - 02:09
